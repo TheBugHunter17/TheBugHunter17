@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **banerjee.a2001@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1UIjUaZvJssvi0JvHua9iHAtatRNtVA98/view?usp=sharing](https://drive.google.com/file/d/1UIjUaZvJssvi0JvHua9iHAtatRNtVA98/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1UIjUaZvJssvi0JvHua9iHAtatRNtVA98/view?usp=sharing](https://drive.google.com/file/d/1ec-tP1cfS2XeG281z570oX-U3CByi9S6/view?usp=sharing)
 
 - ⚡ Fun fact **The more you code the more you love coding .**
 
